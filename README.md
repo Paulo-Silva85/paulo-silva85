@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de paulo-silva85  😁
+## Bem-vindo(a) ao perfil de Paulo-Silva85  😁
 
  <div>
    <a href="https://github.com/paulo-silva85">
